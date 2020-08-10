@@ -1,1 +1,0 @@
-# thythal.github.io
